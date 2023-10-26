@@ -1,5 +1,3 @@
-# Hey there 👋
-
 🚀 **Tech Enthusiast** | 💡 **Creative Thinker** | 📚 **Eager Learner**
 
 Passionate about:
